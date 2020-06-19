@@ -6,3 +6,6 @@ Jesse Bruce Pinkman (Aaron Paul) ist Walters ehemaliger Schüler und nun sein Ko
 * blitzgescheit
 * gerät von einer Katastrophe in die nächste
 * sieht in Walter White eine Art Ersatzvater
+Mein Lieblingszitat:
+> What if this is like math? Or algebra? 
+> You know, you add a plus douchebag to a minus douchebag, then you get, like, zero douchebags.
